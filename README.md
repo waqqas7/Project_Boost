@@ -16,4 +16,6 @@ A - To Rotate Anti Clockwise
 
 Please provide any feedback on the game. I would love to hear it !
 
+To play -> https://sharemygame.com/@waqqas7/project-boost
+
 ------------------Enjoy----------------------
